@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Diwakar433
 - 👀 I’m interested in IT Company(Software Developer).
-- 🌱 I’m currently learning on Gammaprep.
+- 🌱 I’m currently learning on AccioJob.
 - 💞️ I’m looking to collaborate on family's/country's economy.
 - 📫 Gmail ID - diwakarsharma9340@gmail.com
 
